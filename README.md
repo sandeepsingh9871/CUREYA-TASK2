@@ -1,1 +1,0 @@
-# CUREYA-TASK2
